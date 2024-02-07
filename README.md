@@ -15,7 +15,7 @@
 
 - 👯  I’m looking to collaborate on open-source projects.
 
-- 💫  I am open to work on new ideas.
+- 💫  I am open to working on new ideas.
 
 - 📫  How to reach me: https://linktr.ee/ashishrawat2911
 
